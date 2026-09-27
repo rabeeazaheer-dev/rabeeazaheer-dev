@@ -1,4 +1,4 @@
-# Hi there, I'm Arain Zadi 👋
+# Hi there, I'm Rabeea Zaheer 👋
 
 🎓 **BS Computer Science Student at UAF** | 💻 **Frontend Web Developer**
 
